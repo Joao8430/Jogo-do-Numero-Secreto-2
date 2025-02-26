@@ -1,1 +1,1 @@
-Hello, my friends!
+Hi, My friends!
